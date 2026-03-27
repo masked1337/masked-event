@@ -1,3 +1,3 @@
 [ESX] Fivem Event Script [FREE]
 
-preview - https://cdn.discordapp.com/attachments/1026116358884306990/1464993029466231040/2026-01-25_15-34-53.mp4?ex=69c7e814&is=69c69694&hm=41b66e5fcacffe2428d7905ee74440861689d93697370b83d2c41dd6959d2d99&
+preview - https://youtu.be/9Da--ldOz-o
